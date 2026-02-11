@@ -7,5 +7,6 @@ https://github.com/googlegroups345235/fbrep/blob/main/1O6dP3pN0IA7E0YAnGirAp.txt
 
 https://github.com/googlegroups345235/fbrep/blob/main/11ibmcIVzyIVIsZxt9Cdg0.txt
 
-https://github.com/ngosang/trackerslist/blob/master/trackers_best_ip.txt
+
+
 
